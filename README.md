@@ -13,7 +13,7 @@ https://nanniang-1tw.pages.dev/
 ![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/6c84a6a7-c2f4-44ab-8bb4-3417e4af0cf4)
 
 
-生成文件已同步上传到仓库，可直接查看
+生成文件已同步上传到仓库，可直接查看超1000万个满昏昵称
 hit-2-3500.txt....
 hit-ascii-3.txt....
 
