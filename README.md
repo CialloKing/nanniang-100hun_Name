@@ -12,7 +12,6 @@ hit-2-3500.txt....
 hit-ascii-3.txt....
 
 
-![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/afa875d1-4286-4b81-9702-639aed9eb922)
 ![%$%FLZRVK}}~N KDVXAGNPT](https://github.com/user-attachments/assets/07961c98-4c4a-4405-81f8-a2213e1809f5)
 ![QAQFY(H2PY7KS_C`K%(NC}9](https://github.com/user-attachments/assets/ef5659b0-b295-4c68-b307-c5b19184c8ca)
 ![4TOI$G625%D%UYJ@Y%OXWD0](https://github.com/user-attachments/assets/356f76ed-e629-40e1-90e1-daed31d46ed0)
