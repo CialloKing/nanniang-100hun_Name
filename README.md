@@ -11,6 +11,9 @@ https://nanniang-1tw.pages.dev/
 hit-2-3500.txt....
 hit-ascii-3.txt....
 
+
+![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/8306ba74-ca2b-4af1-a60e-175f5e41f823)
+
 ![%$%FLZRVK}}~N KDVXAGNPT](https://github.com/user-attachments/assets/de419079-2a14-4abf-af2f-8ec39693b624)
 ![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/534b2fdd-7c8a-4a21-bf51-4295a0dea0c3)
 ![PS9CT6VC{`DB3%6KPG42AGL](https://github.com/user-attachments/assets/967f30ac-0f97-40cc-a1bd-0d26ee7b7272)
