@@ -11,10 +11,13 @@ https://nanniang-1tw.pages.dev/
 hit-2-3500.txt....
 hit-ascii-3.txt....
 
-<img width="1100" height="1002" alt="@TI%8)JA3JJ0`@0L2{~CSU" src="https://github.com/user-attachments/assets/5395b4de-aeb7-4126-91d1-e5bfd29156d9" />
-![4TOI$G625%D%UYJ@Y%OXWD0](https://github.com/user-attachments/assets/5db48e6d-2a38-4265-8203-d5c76dd3415e)
-![5E@}UGVP2D X{3GO0RNQ LE](https://github.com/user-attachments/assets/c8682fe1-bf8e-4089-9aa9-7a941d417303)
-![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/6c84a6a7-c2f4-44ab-8bb4-3417e4af0cf4)
 
+![5YOQT0{(S`%UZK0MKCO 9MS](https://github.com/user-attachments/assets/afa875d1-4286-4b81-9702-639aed9eb922)
+![%$%FLZRVK}}~N KDVXAGNPT](https://github.com/user-attachments/assets/07961c98-4c4a-4405-81f8-a2213e1809f5)
+![QAQFY(H2PY7KS_C`K%(NC}9](https://github.com/user-attachments/assets/ef5659b0-b295-4c68-b307-c5b19184c8ca)
+![4TOI$G625%D%UYJ@Y%OXWD0](https://github.com/user-attachments/assets/356f76ed-e629-40e1-90e1-daed31d46ed0)
+![J VF$18UGK7@IV)U {VK2](https://github.com/user-attachments/assets/28112028-e1fc-4dd2-98d3-f5cf7a61b907)
+![5E@}UGVP2D X{3GO0RNQ LE](https://github.com/user-attachments/assets/850f6c59-9bbb-4566-9b5c-5905ca86d819)
+![PS9CT6VC{`DB3%6KPG42AGL](https://github.com/user-attachments/assets/42bfb582-5d56-4cf3-92f0-7fbe9a2ccc85)
 
 
